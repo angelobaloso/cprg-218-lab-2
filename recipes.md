@@ -81,6 +81,7 @@ Ingredients:
 - Lettuce
 - Tomato
 - Mayonnaise
+- (OPTIONAL: ADD MORE CHICKEN)
 
 Instructions:
 1. Preheat grill to medium-high heat.
