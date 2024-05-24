@@ -114,3 +114,20 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Red Velvet Cake Recipe
+
+Ingredients:
+- 3 cups (360g) cake flour (spooned & leveled)
+- 1 teaspoon baking soda
+- 2 Tablespoons (10g) unsweetened natural cocoa powder
+- 1/2 teaspoon salt
+- 1/2 cup (8 Tbsp; 113g) unsalted butter, softened to room temperature
+- 2 cups (400g) granulated sugar
+- 1 cup (240ml) canola or vegetable oil
+- 4 large eggs, room temperature and separated
+- 1 Tablespoon pure vanilla extract
+- 1 teaspoon distilled white vinegar
+- liquid or gel red food coloring
+- 1 cup (240ml) buttermilk, at room temperature
+
