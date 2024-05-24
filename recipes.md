@@ -102,6 +102,7 @@ Ingredients:
 - 2 eggs
 - 2 tsp vanilla extract
 - 2 cups semisweet chocolate chips
+- (OPTIONAL: ADD MORE CHOCOLATE CHIPS)
 
 Instructions:
 1. Preheat oven to 375°F (190°C).
